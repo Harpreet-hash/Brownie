@@ -1,7 +1,7 @@
-STEP 1
+####STEP 1
 Heat oven to 180C/fan 160C/gas 4. Butter a 20-25cm cake tin and line with greaseproof paper.
 
-STEP 2
+####STEP 2
 Place 175g/6oz of the chocolate, plus the butter and sugar in a heavy-based pan and heat gently until melted, stirring occasionally. Leave to cool.
 
 STEP 3
